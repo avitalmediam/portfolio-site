@@ -22,6 +22,9 @@ Intro to me
 Jun 08 2025: [[The Opening of "Seeking Concious Comfort"]]
 
 ==many more are missing, will add and/or automate. yay archives==
+
 Feb 02 2025: [[Asgmt 2 Abstracts]]
+
 Jan 30 2025: [[Wounded Storyteller by Arthur Frank]]
+
 Jan 26 2025: [[Asgmt 1 Portfolio]]
