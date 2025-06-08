@@ -10,7 +10,7 @@ Of depth and carved in adoration\
 \
 Because as exhausted and (lingeringly concerned) as I feel, I am rejuvenated
 \
-The way the Saturnian youth bath is meant to mature in in
+The way the Saturnian youth bath is meant to mature in
 \
 The waters come from a fountain\
 Rich in the mixed emotional duality\
