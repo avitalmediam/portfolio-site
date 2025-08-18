@@ -6,7 +6,9 @@ date: 2025-01-26
 
 ==Intro to blog==
 
-Intro to me
+**About me in brief:** I am a New York City storyteller who leans into reflexive narrative in both writing and multimedia art. Her practice often integrates drawing, audio, and personal archives to produce accessible interactive installations or rituals. 
+
+For me details get to know me [[Artist Statement|here]].
 
 ###### 
 
@@ -18,6 +20,7 @@ Intro to me
 * classes?
 
 # Recent Posts
+
 
 Jun 08 2025: [[The Opening of "Seeking Concious Comfort"]]
 
