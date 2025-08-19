@@ -8,7 +8,7 @@ date: 2025-01-26
 
 **About me in brief:** I am a New York City storyteller who leans into reflexive narrative in both writing and multimedia art. Her practice often integrates drawing, audio, and personal archives to produce accessible interactive installations or rituals. 
 
-For me details get to know me [[Artist Statement|here]].
+Feel free to get to know me more [[who is she?|here]].
 
 ###### 
 
